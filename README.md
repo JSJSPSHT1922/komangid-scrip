@@ -1,0 +1,1 @@
+# komangid-scrip
